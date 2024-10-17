@@ -1,1 +1,1 @@
-https://uchihathegod.github.io/st/ar.html
+https://uchihathegod.github.io/st
